@@ -18,7 +18,8 @@ You can click the Preview link to take a look at your changes.
 ![Cute Bunny](https://media.giphy.com/media/3oriO0OEd9QIDdllqo/giphy.gif)
 😸😸😸😸😸😸😸😸😸😸😸😸😸😸😸
 
-![Dans Eden Winnie the Pooh](https://media.giphy.com/media/3ohzdIuqJoo8QdKlnW/giphy.gif)
+
+![Winnie the Pooh](https://media0.giphy.com/media/iOwMzftR9FSbm/giphy.gif?cid=6c09b952k7ltf14yh0oremfzne8pwn0juprzvs9ammek7efa&ep=v1_internal_gif_by_id&rid=giphy.gif&ct=g)
 
 
 
