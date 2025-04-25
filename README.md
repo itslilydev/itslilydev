@@ -18,8 +18,7 @@ You can click the Preview link to take a look at your changes.
 
 
 
-![Winnie the Pooh](https://media0.giphy.com/media/iOwMzftR9FSbm/giphy.gif?cid=6c09b952k7ltf14yh0oremfzne8pwn0juprzvs9ammek7efa&ep=v1_internal_gif_by_id&rid=giphy.gif&ct=g)
-🍯🍯🍯🍯🍯
+
 
 https://media0.giphy.com/media/o0vwzuFwCGAFO/giphy.gif?cid=6c09b9520th9gutvmbvevn32g3hjnvyq2f5d8jes9s14qble&ep=v1_internal_gif_by_id&rid=giphy.gif&ct=g
 
