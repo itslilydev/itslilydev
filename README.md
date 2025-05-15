@@ -2,7 +2,7 @@
 I'm learning software development.
 
 - **Learning:**  
-  - Python (basic)  
+  - Python  
   - Computer logic and algorithms  
   - Git and GitHub  
 
